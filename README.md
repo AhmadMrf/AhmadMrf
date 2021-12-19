@@ -2,4 +2,4 @@
 - 👀 I’m interested in nursing (i’m a nurse), and Programming 
 - ✨ I started with web development
 - 🌱 I’m currently learning Web development
-- 📫 How to reach me :  [Instagram](https://www.instagram.com/_ahmadmrf_) | | [Email](mailto:naashna20@gamil.com)
+- 📫 How to reach me :  [Instagram](https://www.instagram.com/js_developing) | | [Email](mailto:naashna20@gamil.com)
